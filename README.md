@@ -1,1 +1,0 @@
-# thenameisblue.github.io
